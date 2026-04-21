@@ -1,3 +1,3 @@
 
 
-:: ꒰ Razz　　⸝⸝⸝⠀　　Any prns　౨ৎ ⋮　　c+h ꒱
+:: ꒰ Tino　　⸝⸝⸝⠀　　he they　౨ৎ ⋮　　c+h ꒱
